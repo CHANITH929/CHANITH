@@ -1,2 +1,0 @@
-# CHANITH
-chanith.com
